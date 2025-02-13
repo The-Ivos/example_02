@@ -1,2 +1,7 @@
 tadyk sem udelal zmenu
-a tadyk hnedka dalsi
+totok je zase jina zmena
+
+
+
+
+a tady jeste neco
